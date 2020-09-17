@@ -1,5 +1,5 @@
 Premise:
-Place:Neighbourhood, Time:Afternoon of three to five days with flashbacks , Characters:Narrator,Theodore,The man  , POV: Start off with third person, then continue with first 
+Place: Neighbourhood, Time: Afternoon of three to five days with flashbacks , Characters: Narrator,Theodore,The man  , POV: Start off with third person, then continue with first 
 person and end with third person
 
 Story plot:
@@ -14,11 +14,10 @@ see into the future and to prevent it from happening.
 Move onto his road home and he saw the man's house, a beautiful house that he had always aspired to own.He had never seen the man, but he knew of the tales of his climb to the top
 along with the many conspiracies around him and his tendency of talking to the lower class.Coincidentally, the man just bumped into him and upon noticing the boy, the man scanned 
 him, focusing on his pimple-filled forehead.The boy was embarrassed for he thought the man found him disgusting but still, he went to shake his hand to show respect.The man seemed pleased with him and reached out his hand . I shook it and he told me a story, a story about how he once longed to predict the future, and how he realised that he no longer needed to predict the future after 
-he learnt about control. I was intrigued by his tale and handed me an illustration of a fight, and said that we would meet again , then he left.
-The next day,I went back as before, but this time I limped home , the lust for vengeance filling my mind. 
-
-Then, he appeared, the man, the man whom I seemed to feel a greater respect
-for. He seemed distraught and desperate today, and he ran towards me, asking me for help. Seeing him in such a state, I felt sympathy, and he asked me to buy his wares. He gave me a 
+he learnt about control. I was intrigued by his tale and he handed me an illustration of a fight, and said that we would meet again , walking away leaving a cloud of dust.
+The next day,I went back as before, but this time it was different as I limped, filled with vengeance.
+Then, he appeared, the man, the man whom I seemed to feel a great respect
+for. He seemed distraught and desperate today, as he ran towards me, asking me for help. Seeing him in such a state, I felt sympathy, and he asked me to buy his wares. He gave me a 
 variety of paintings to choose from and upon seeing the one with a boy proudly lifting his test paper, I immediately chose it , hoping that I would get it. He cackled and told me 
 that I was wise and he handed it to me.I took it , pondering over what he meant.
 The next day, I triumphantly walked back home, ready to face anything . The man this time however , did not come to me and he sat at his porch, this time looking weak and old, and he
